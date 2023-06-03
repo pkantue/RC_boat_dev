@@ -1,0 +1,1 @@
+Speed Boat 3 RC by wersy on Thingiverse: https://www.thingiverse.com/thing:930577
